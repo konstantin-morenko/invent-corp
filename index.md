@@ -1,4 +1,4 @@
-## scientific solutions
+## scientific solutions / научные решения
 
 ## Услуги
 
